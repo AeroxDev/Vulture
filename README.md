@@ -88,4 +88,4 @@ to all the files of the victim's computer without any permissions.
 
 -----
 
-### <p align="center">billythegoat356</p>
+### <p align="center">Aerox</p>
